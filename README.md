@@ -1,2 +1,2 @@
 # test
-hghhcvcxvxcv的粉红色
+hghhcvcxvxcv
